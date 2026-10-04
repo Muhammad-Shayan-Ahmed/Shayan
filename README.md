@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Muhammad Shayan Ahmed
+# 💫 Hi 👋, I'm Shayan
 **"Turning Ideas into Reality with AI: Building Specialized SaaS & Web Solutions for Small Businesses."**
 
 Email Me 👉 ✉️ **shayanahmedmuhammad@gmail.com** For Collaboration/Project or Anything Else. 😊😊
